@@ -1,2 +1,7 @@
-# Toaster
-Just an overview over everything i doo :)
+## Hi I'm Toaster:)
+
+
+Still in School <br/>
+Working on different Projects <br/>
+Lil experience in robotics <br/>
+Gymnast <br/>
